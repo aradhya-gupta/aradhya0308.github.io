@@ -1,3 +1,1 @@
-Hey this is DrogonSlayer of the shaolin clan.
-I have killed 100 dragons till date. I am the master of the most ferocious dragon 
-"Vitruvius" the son of "Megathorin" and "Megathaine".
+Hey this is Aradhya Gupta. I'm an undergraduate student of Electrical and Electronics Engineering at IIT Patna. I am an open-source web dev enthusiast.
